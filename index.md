@@ -6,3 +6,6 @@ Katherine Pierce, geb. Katerina Petrova (bulgarisch: Катерина Петро
 * Verwandelt Von Rose-Marie am 6. April 1492 (1. Mal)
 * Status Verstorben
 * Geschlecht weiblich
+
+Katherine zu Damon
+>Ich habe alles, was ich will, Damon ... Oder ich bin dabei. Sobald die >letzte Glocke läutet, wird diese dumme Stadt in Flammen aufgehen, und >alle werden verpuffen. Nun, sie werden zuerst lebendig verbrennen, >aber dann wird ihre Asche puh gehen.
